@@ -1,2 +1,0 @@
-# securekim.com
-securekim.com
